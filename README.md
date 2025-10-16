@@ -1,16 +1,19 @@
-## Hi there 👋
 
-<!--
-**CR-to-radzzy/CR-to-radzzy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+　　　　　　　　　<img width="589" height="488" alt="imageedit_5_9937149535" src="https://github.com/user-attachments/assets/7c0632cb-63ff-4a96-bf0f-3451589ef7d5" />
 
-Here are some ideas to get you started:
+　　　　　　　　　　　　　　　　　 KAMI 　　　　hvykin　　　　　he/spark
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+　　　　　　　　　　　　　　　　 int 　　　 c+h encouraged 　　　 i dont bite:(　　
+
+　　　　　　　　　　　　　　　　 　often offtab 　　　 ♡ 　　　 sero kisser!!
+
+
+　　　 　　　**ALL CREDITS FOR MY KAMI PT SKIN GO TO RADZZY! I DID NOT CREATE THE SKIN, RADZZY DID!**
+      
+　　　 　　　　　 　　i am 16. please do not interact with me if you are an adult or younger than 14.　
+
+　　　 　　　  　i have severe social anxiety, adhd, and suspected chronic fatigue; please be patient with me.
+
+　　　　　　　　 　if i don't answer what you say, i am NOT trying to ignore you or come across as mean!
+
+　　　　　　　　　　　          　 　　     　 　　　 　 discord, free to add: kippfish　　　　
